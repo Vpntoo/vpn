@@ -3,7 +3,7 @@
 # vpn
 
 [✅ جهت خرید آنی و آنلاین vpn کلیک کنید
-](http://bazargani.sbs/online/)
+](https://bazargani.sbs/online/)
 
  🔴 **پشتیبانی تلگرام : @filterarvan**
 
