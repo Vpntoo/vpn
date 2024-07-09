@@ -1,4 +1,4 @@
-<link rel=”canonical” href=”https://github.com/filteryoz/antifilter/” />
+<link rel=”canonical” href=”https://github.com/Vpntoo/vpn/” />
 
 # vpn
 
